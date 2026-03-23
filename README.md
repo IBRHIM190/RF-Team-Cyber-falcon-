@@ -15,12 +15,12 @@ We are looking for **expert members in the world of waves and radars**, with hig
 - Commitment to contribute actively
 
 📩 How to join:  
-- Discord: [insert your link]  
-- X (Twitter): [insert your handle]
+- Discord: [https://discord.gg/HqTNBpT4T]  
+
 
 Join us and be part of a team focused on **RF security and cybersecurity**!
 
----
+---https://discord.gg/HqTNBpT4T
 
 ## النسخة العربية
 مرحبًا بك في فريق **سايبر فالكون**!  
@@ -37,7 +37,7 @@ Join us and be part of a team focused on **RF security and cybersecurity**!
 - الالتزام بالمساهمة في الفريق
 
 📩 طرق التواصل والانضمام:  
-- Discord: [ضع رابطك هنا]  
-- X (Twitter): [ضع حسابك هنا]
+- Discord: [https://discord.gg/HqTNBpT4Tا]  
+
 
 انضم إلينا وكن جزءًا من فريق يركز على **أمن الموجات والرادارات والأمن السيبراني**!
